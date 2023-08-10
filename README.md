@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Rukchanok khumsamer</h1>
-<h3 align="center">Begineer for developer from Thailand 🙏 🇹🇭</h3>
+<h3 align="center">Beginner for Webdeveloper from Thailand 🙏 🇹🇭</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=rukchanokksm&label=Profile%20views&color=0e75b6&style=flat" alt="rukchanokksm" /> </p>
 
