@@ -7,11 +7,11 @@
 
 - 📄 My CV [https://drive.google.com/file/d/1F-k0Dt3lOW8gGaTeNBr5rPxENjVq90w2/view?usp=sharing](https://drive.google.com/file/d/1F-k0Dt3lOW8gGaTeNBr5rPxENjVq90w2/view?usp=sharing)
 
-- 🧠 My Motto [No money,No Energy 💸](No money,No Energy 💸)
+- 🧠 My Motto: No money,No Energy 💸
 
 - 📧 How to Contact me **rukchanok.ksm@hotmail.com**
 
-- 👨‍💻 Current status [looking for a job 👀](looking for a job 👀)
+- 👨‍💻 Current status : looking for a job 👀
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
