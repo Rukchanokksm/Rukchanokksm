@@ -9,7 +9,7 @@
 
 - 🧠 My Motto: No money,No Energy 💸
 
-- 📧 How to Contact me **rukchanok.ksm@hotmail.com**
+- 📧 Contact me at my email address **rukchanok.ksm@hotmail.com**
 
 - 👨‍💻 Current status : looking for a job 👀
 
